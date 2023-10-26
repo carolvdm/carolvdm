@@ -10,5 +10,5 @@
   carolina.drabeski.martins@escola.pr.gov.br
 
 
-![](https://media.tenor.com/WbMO5v4S4VUAAAAd/gatos-negros-black-cat.gif)
+![](https://media.tenor.com/EPXPuQM_L0QAAAAd/hi-no.gif)
 
